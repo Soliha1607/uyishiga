@@ -13,3 +13,5 @@ Violet, blue, green, red to keep me
 At arm's length don't work
 You try to push me out
 But I just find my way back in
+Violet, blue, green, red to keep me out
+I win
