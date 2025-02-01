@@ -22,3 +22,5 @@ Like if you hold me without hurting me
 You'll be the first who ever did
 There's things I wanna talk about
 But better not to give
+But if you hold me without hurting me
+You'll be the first who ever did
