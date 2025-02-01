@@ -9,3 +9,5 @@ Cinnamon in my teeth
 From your kiss
 You're touching me
 All the pills that you take
+Violet, blue, green, red to keep me
+At arm's length don't work
