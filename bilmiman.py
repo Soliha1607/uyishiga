@@ -7,3 +7,5 @@ last commit and that is end
 
 Cinnamon in my teeth
 From your kiss
+You're touching me
+All the pills that you take
