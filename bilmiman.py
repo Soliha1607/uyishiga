@@ -15,3 +15,6 @@ You try to push me out
 But I just find my way back in
 Violet, blue, green, red to keep me out
 I win
+
+There's things I wanna say to you
+But I'll just let you live
