@@ -18,3 +18,5 @@ I win
 
 There's things I wanna say to you
 But I'll just let you live
+Like if you hold me without hurting me
+You'll be the first who ever did
