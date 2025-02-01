@@ -20,3 +20,5 @@ There's things I wanna say to you
 But I'll just let you live
 Like if you hold me without hurting me
 You'll be the first who ever did
+There's things I wanna talk about
+But better not to give
